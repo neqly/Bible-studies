@@ -30,7 +30,7 @@ this is more specifically, we can look to John 8, when Jesus is speaking to the 
 This is a lot of information to consider up to this point, but it's crucial to mention all of it to effectively answer the original questions. From all of this, it's clear that the writer of Hebrews acknowledges that the
 angel of the Lord IS Jesus and that Jesus IS in fact God!! This makes sense that Moses would revere the reproach of Christ, as described in Hebrews 11:26, because it aligns with who Jesus claimed to be AND
 reinforces the concept of the Trinity/the preexistence of Jesus (we obviously don't know the specifics of what Moses saw, but he very well could've been visited by a pre-incarnate Jesus). Even earlier in the book in
-Hebrews 1:3, it says Christ is the radiance of the Father's glory and the EXACT imprint of His nature. This further provides clarity and confirmation about the author's belief in Jesus being co-equal with the Father
+Hebrews 1:3, it says Christ is the radiance of the Father's glory and the EXACT imprint of His nature. This provides further clarity and confirmation about the author's belief in Jesus being co-equal with the Father
 in Hebrews 11.
 
 There's so many revelations of God's plan regarding Christ throughout the Old Testament... we are so blessed to see the fullness of it revealed in His Son today!

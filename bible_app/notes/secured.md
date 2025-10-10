@@ -1,5 +1,5 @@
 **Jude 1:24 (NLT)**
-> Now all glory to God, who is able to keep you from falling away and will bring you with great joy into his glorious presence.
+> 24 Now all glory to God, who is able to keep you from falling away and will bring you with great joy into his glorious presence.
 
 ---
 
