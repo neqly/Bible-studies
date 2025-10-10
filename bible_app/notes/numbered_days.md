@@ -9,3 +9,7 @@
 
 ---
 
+> Our lives are numbered precisely and this truth, which actually can be sobering at first, is comforting to me. I don't truly hold the power of life and death in my hands, but now I realize this life
+> is too fragile to even want to. I really like what I found another believer said about this truth in an article, and it states that God "can be completely trusted to keep me safe until the Divinely
+> allotted numbers of days ordained have expired and then take me to the next life He has prepared for me. And He has done such an inexpressibly great job with this life I can't even begin to imagine
+> what's on tap for the next!" Whether I die tomorrow, 10 years, or 70 years from now, I understand that my Father has appointed my time to go, so I can break free of the the fear of "going before my time."
