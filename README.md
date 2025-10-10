@@ -5,7 +5,7 @@
 - I hope this repo can help people understand more about God from a biblical perspective and learn from what wisdom and knowledge He was given me!
 
 ## Bible Studies
-Below are the Bible studies I have done, all of which can be found in the **studies** folder (includes cross reference sheets)
+Below are the Bible studies I have done, all of which can be found in the ***studies*** folder (includes cross reference sheets)
 - Faith
 - Nicodemus
 - Overthinking
@@ -13,4 +13,4 @@ Below are the Bible studies I have done, all of which can be found in the **stud
 - Temptation
 
 ## Bible App
-- My saved notes and verse connections from the mobile app are added within the **bible_app** folder
+- My saved notes and verse connections from the mobile app are added within the ***bible_app*** folder
